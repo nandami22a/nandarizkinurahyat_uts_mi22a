@@ -1,0 +1,1 @@
+# nandarizkinurahyat_uts_mi22a
